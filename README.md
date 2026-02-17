@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning fullstack
 - 💞️ I’m looking to collaborate on reputed company to enhance my ideas and creativity
 - 📫 you can reach me through my mail-- gokulzz252@gmail.com
-- 😄 Pronouns:goku
+- 😄 Pronouns:gokuz
 - ⚡ Fun fact: i am too focused
 
 <!---
